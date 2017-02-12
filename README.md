@@ -7,29 +7,9 @@ https://mega.nz/#!CFpQhA7b!pb0po0ViD_WrfL0NdMr_UTPTs30gRdVAJ9o4lauGD30
 
 Contraseña: www.graphicsonline.org
 
-## 
+# Udemy Cursos
 
-# Curso Udemy: Whitehat Hacking and Penetration Testing Tutorial Video
-
-http://linkshrink.net/7WD5EQ
-
-Contraseña: www.intercambiosvirtuales.org
-
-# Curso Udemy: Fundamentos de ITIL v3
-
-http://ouo.io/a5B2f
-
-Contraseña: www.intercambiosvirtuales.org
-
-# Udemy: Páginas web dinámicas con estética profesional
-
-http://linkshrink.net/7kPXKj
-
-Contraseña: www.intercambiosvirtuales.org
-
-# Udemy: Paso a Paso con SAP 1ra edición
-
-http://linkshrink.net/7BPdWz
+https://mega.nz/#F!qVFTxQiQ!09NXtexsLhu23jqYgfC42w
 
 Contraseña: www.intercambiosvirtuales.org
 
@@ -51,7 +31,14 @@ http://ouo.io/yuG73i
 
 Contraseña: www.intercambiosvirtuales.org
 
+# Mega
 
+https://mega.nz/#!LxYhTQrQ!J-RHKRvC-J1sv7jbmpBSO55h2coXglAtakFHYKmoD9A
 
-#
+# Ilustración corporativa: Guía de Estilo vectorial Domestika
+
+mega://enc2?smCb1EIoq2nUerxaMewsCSuE4bwUieKa43cUuLzHMWKvz42iIize7Nl_HjU1IQD2jCPtKyYRHpYNvrj5shXqKw
+
+Contraseña: www.descargasnsn.com
+
 
