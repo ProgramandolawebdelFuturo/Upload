@@ -39,6 +39,20 @@ https://mega.nz/#!LxYhTQrQ!J-RHKRvC-J1sv7jbmpBSO55h2coXglAtakFHYKmoD9A
 
 mega://enc2?smCb1EIoq2nUerxaMewsCSuE4bwUieKa43cUuLzHMWKvz42iIize7Nl_HjU1IQD2jCPtKyYRHpYNvrj5shXqKw
 
+https://openload.co/f/duWrvh565YQ/FR96F0HGH4GF.rar
+
 Contraseña: www.descargasnsn.com
+
+# Curso Estrategia y creatividad para diseñar nombres de marca
+
+https://openload.co/f/8t-Ho-VHshI/KJTT96G04JH.rar
+
+Contraseña: www.descargasnsn.com
+
+https://www.google.com.mx/search?q=Curso+Academia+Wordpress+2016&oq=Curso+Academia+Wordpress+2016&aqs=chrome..69i57.108273j0j7&sourceid=chrome&ie=UTF-8
+
+
+
+
 
 
