@@ -49,6 +49,10 @@ https://openload.co/f/8t-Ho-VHshI/KJTT96G04JH.rar
 
 Contraseña: www.descargasnsn.com
 
+# Curso de Academia Wordpress
+
+http://www.pastensn.com/LZNhDFUH
+
 https://www.google.com.mx/search?q=Curso+Academia+Wordpress+2016&oq=Curso+Academia+Wordpress+2016&aqs=chrome..69i57.108273j0j7&sourceid=chrome&ie=UTF-8
 
 
