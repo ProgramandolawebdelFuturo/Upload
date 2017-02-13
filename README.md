@@ -1,6 +1,14 @@
 # Upload
 Archivos Upload
 
+## Curso Photoshop Desde Cero
+
+http://www.pastensn.com/KeFHSiaR
+
+## Curso de SEO: Aprende a posicionar tu sitio en buscadores
+
+http://www.pastensn.com/tCK3SsJ4
+
 ## Curso Gráficos en 3D para la web con Threejs
 
 http://www.pastensn.com/mrcO4xEV
