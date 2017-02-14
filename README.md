@@ -1,6 +1,10 @@
 # Upload
 Archivos Upload
 
+## Worpress
+
+https://mega.nz/#F!poV3zYAS!R8_sgfHnkIqYgGyyYXxgEQ
+
 ## Curso Photoshop Desde Cero
 
 http://www.pastensn.com/KeFHSiaR
