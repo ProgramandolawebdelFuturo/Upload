@@ -1,7 +1,67 @@
 # Upload
 Archivos Upload
 
+# (OJALA) Fundamentos básicos de AWS (Amazon Web Services)
+
+http://safelinknsn.net/WkPaGgA
+
+#  (OJALA) Aprende a crear una app de Android que guarde datos sin conectarse a Internet
+ 
+http://safelinknsn.net/82Xw2Di
+
+# (OJALA) Conoce herramientas de UX para tu trabajo profesional
+
+http://safelinknsn.net/3ajuFdH
+
+#  (OJALA) Aprende a mejorar la gestión de tus proyectos - Pass: 507akka
+
+http://www.pastensn.com/7bBUNK5Q
+
+#  (OJALA) Aprende a trabajar e-commerce con laravel paso a paso [ II Parte ] - Contraseña: 507akka
+
+http://www.pastensn.com/BlQlNVsM
+
+#  (OJALA) Aprende a trabajar e-commerce con Laravel paso a paso (I PARTE) - Contraseña : 507akka
+
+http://www.pastensn.com/fKKEquQW
+
+#  (OJALA) Aprende a programar en 30 días paso a paso, con Ruby on Rails - Contraseña: 507akka
+
+http://www.pastensn.com/bdyLkeHs
+
+#  (OJALA) Conoce cómo manejar layouts en CSS como un experto - Contraseña: 507akka
+
+http://www.pastensn.com/tOKt72ij
+
+#   (OJALA) Tutorial paso a paso de desarrollo web con Node.js y Express.js  - Contraseña: 507akka
+
+http://www.pastensn.com/EbvgBp2s
+
+#   (OJALA) Introducción a Web services - Contraseña: 507akka
+
+http://safelinknsn.net/M1rdzsN
+
+#   (OJALA) Aprende a conectar tu aplicación PHP con tu base de datos en MySQL - Contraseña: 507akka
+
+http://safelinknsn.net/HNHlbdb
+
+#  (OJALA) Aprende cómo configurar entornos de desarrollo web como un profesional - Contraseña: 507akka
+
+http://safelinknsn.net/5dbgt3F
+
+ # [Platzi]Curso Profesional de Java 2015 - Password: claudiomontenegro
+
+http://www.pastensn.com/GvdHYa0k
+
+
+ 
+
+http://www.foronsn.com/portal.php?page=9
+
+
+
 # Curso Online de Desarrollo API's - PassWord: TeamNsN
+
 https://1fichier.com/?gznawwexkl
 
 https://1fichier.com/?9vsoc9cnqq
